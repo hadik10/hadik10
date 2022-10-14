@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hadik10
+- 👋 Hi, I’m Hardik Gupta
 - 👀 #Modeling and Fashion is my Hobby #Learning Self-Defense is a need #Doing Something of myself is my passion
 - 🌱 I’m currently learning Management Information Systems
 - 💞️ I’m looking to collaborate on ...Jesselin Shanju Unger
